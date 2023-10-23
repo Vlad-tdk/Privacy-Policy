@@ -9,4 +9,4 @@ The AppName application is designed to be free. This service is provided free of
 
 Connect with us
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me by email: myemail@example.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me by email: appequilibrium@icloud.com.
